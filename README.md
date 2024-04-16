@@ -1,4 +1,4 @@
-# 😊 Rads Roblox Executor 😊
+# 😊 Raids Roblox Executor 😊
 
 ## 💡 What is it? 💡
 
